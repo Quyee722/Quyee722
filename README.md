@@ -1,0 +1,3 @@
+-👋 Hi, I’m Stephen,you can also call my Chinese name Qiu Yeye.
+- 👀 I’m interested in playing basketball and playing computer game.  
+- 🌱 I’m currently learning nothing because i'm new to programming.
