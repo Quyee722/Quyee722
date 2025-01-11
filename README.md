@@ -1,3 +1,6 @@
-- 👋 Hi, I’m Stephen,you can also call my Chinese name Qiu Yeye.
-- 👀 I’m interested in playing basketball and playing computer game.  
-- 🌱 I’m currently learning nothing because i'm new to programming.
+- 👋 Hi, I’m Stephen Qiu,you can also call me my Chinese name Qiu Yeye.
+- 👀 I’m interested in playing basketball and playing computer game such as Vlorant and so on. 
+- 🌱 I’m currently learning every programming language because i'm new to programming.
+- 🤣 I’m studied at Dongguan University of Technology,and we students also call it Guanzhuan.So when DGUT renamed "大学"?
+- 🙌 If you and I are from the same school，you can add my Wechat:YEY050722
+- 😘 I’m so happy to joinning this web,nice to see you then!
